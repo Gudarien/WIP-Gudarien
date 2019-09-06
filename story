@@ -1,0 +1,1 @@
+I am here to tell you the tale of a half dragon half human hybrid. He was strong and worked hard to belong and be helpful. But alas he was never accepted. During his life he lived alone. But one day that all changed. 
